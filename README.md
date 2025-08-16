@@ -1,5 +1,5 @@
-# Daryajalini
-با بیش از ۶ سال تجربه در روابط عمومی، نمایشگاه‌ها، هدایای تبلیغاتی، طراحی و چاپ، مسیر حرفه‌ای من همواره در کنار مسیر هنری‌ام پیش رفته است.
-نقاشی و طراحی نه فقط بخشی از علاقه‌ها، که ریشه‌ای از هویت کاری من بوده‌اند.
+# Darya jalini
+With over six years of experience in public relations, exhibitions, promotional gifts, design and print, my professional journey has always run alongside my artistic path.
+Painting and design are not merely passions but have become fundamental parts of my professional identity.
 
-آنچه مرا به پیش می‌راند، یافتن زبان مشترک با مخاطب است؛ گاهی در قالب یک کمپین روابط عمومی و گاهی در قاب یک اثر هنری.
+What drives me forward is finding a common language with the audience, sometimes through a public relations campaign and sometimes within the frame of a work of art.
